@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @AmirrJ0110
 - 👀 I am from Iran
+- my DESIGN
+- https://s8.uupload.ir/files/55t5t_4d51.gif
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 
